@@ -1,0 +1,1 @@
+# portal.partasalan.is
